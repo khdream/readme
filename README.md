@@ -7,7 +7,7 @@ Which are you prefer for real conversation?
 
 Skype : https://join.skype.com/invite/y4tKHPOLESps
 </br>
-Telegram : @feller0107
+Telegram : https://t.me/feller90107
 </br>
 Email : ericchi9421@gmail.com
 
