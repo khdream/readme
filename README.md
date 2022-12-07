@@ -1,7 +1,7 @@
 # readme
 
 Here is my contact information.
-I would like you to connect with me on below converstion field for more useful communication.
+I would like you to connect with me on below converstion field for more flexible communication.
 
 Which are you prefer for real conversation?
 
