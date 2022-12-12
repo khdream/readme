@@ -1,9 +1,9 @@
 # readme
 
-Here is my contact information.
-I would like you to connect with me on below converstion field for more flexible communication.
+Here is my contact information. 
+I would like you to connect with me on the conversion field for more flexible communication.
 
-Which are you prefer for real conversation?
+Which do you prefer for real conversation?
 
 Skype : https://join.skype.com/invite/y4tKHPOLESps
 </br>
